@@ -16,7 +16,9 @@ Jesus said to him, "I am the way, and the truth, and the life. No one comes to t
 你当倚靠耶和华而行善， 住在地上，以他的信实为粮；  又要以耶和华为乐， 他就将你心里所求的赐给你。诗篇 37:3‭-‬4
 Trust in the Lord , and do good; dwell in the land and befriend faithfulness. Delight yourself in the Lord , and he will give you the desires of your heart. Psalms 37:3‭-‬4 
 
-应当一无挂虑，只要凡事借着祷告、祈求，和感谢，将你们所要的告诉　神。 　神所赐、出人意外的平安必在基督耶稣里保守你们的心怀意念。
-腓立比书 4:6‭-‬7
-do not be anxious about anything, but in everything by prayer and supplication with thanksgiving let your requests be made known to God. And the peace of God, which surpasses all understanding, will guard your hearts and your minds in Christ Jesus.
-Philippians 4:6‭-‬7
+应当一无挂虑，只要凡事借着祷告、祈求，和感谢，将你们所要的告诉　神。 　神所赐、出人意外的平安必在基督耶稣里保守你们的心怀意念。腓立比书 4:6‭-‬7
+do not be anxious about anything, but in everything by prayer and supplication with thanksgiving let your requests be made known to God. And the peace of God, which surpasses all understanding, will guard your hearts and your minds in Christ Jesus. Philippians 4:6‭-‬7
+
+万军之耶和华说：不是倚靠势力，不是倚靠才能，乃是倚靠我的灵 方能成事 。撒迦利亚书 4:6 
+Not by might, nor by power, but by my Spirit, says the Lord of hosts. Zechariah 4:6
+
