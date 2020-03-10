@@ -22,3 +22,7 @@ do not be anxious about anything, but in everything by prayer and supplication w
 万军之耶和华说：不是倚靠势力，不是倚靠才能，乃是倚靠我的灵 方能成事 。撒迦利亚书 4:6 
 Not by might, nor by power, but by my Spirit, says the Lord of hosts. Zechariah 4:6
 
+If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. 1 John 1:9
+我们若认自己的罪，　神是信实的，是公义的，必要赦免我们的罪，洗净我们一切的不义。
+约翰一书 1:9
+
