@@ -2,6 +2,7 @@
 1. [12 Bible Verses](12BibleVerses.md)
 1. [12 Books](12books/)
 1. [Man of Faith](ManOfFaith.md)
+1. [Online resources](resoures.md)
 
 More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation. Romans 5:11
 不但如此，我们既借着我主耶稣基督得与　神和好，也就借着他以　神为乐。罗马书 5:11
