@@ -26,3 +26,5 @@ If we confess our sins, he is faithful and just to forgive us our sins and to cl
 我们若认自己的罪，　神是信实的，是公义的，必要赦免我们的罪，洗净我们一切的不义。
 约翰一书 1:9
 
+凡劳苦担重担的人可以到我这里来，我就使你们得安息。 我心里柔和谦卑，你们当负我的轭，学我的样式；这样，你们心里就必得享安息。 因为我的轭是容易的，我的担子是轻省的。马太福音 11:28‭-‬30
+Come to me, all who labor and are heavy laden, and I will give you rest.  Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will find rest for your souls.  For my yoke is easy, and my burden is light. Matthew 11:28‭-‬30
