@@ -10,3 +10,7 @@
 * https://creation.com/sir-francis-bacon
 * http://www.sirbacon.org/links/bible.html
 
+### Galileo
+> In a letter explaining his views on the mixture of science and religion, Galileo wrote: Holy Scripture could never lie or err, but its decrees are of absolute and inviolable truth. I should only have added that although Scripture can indeed not err, nevertheless some of its interpreters and expositors may sometimes err in various ways, one of which may be very serious and quite frequent, [that is,] when they would base themselves always on the literal meaning of words.
+
+
