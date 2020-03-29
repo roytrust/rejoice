@@ -3,6 +3,23 @@
 * [圣经的诠释 Interpretation of the Bible](http://31team.org/page/%E3%80%8A%E5%9C%A3%E7%BB%8F%E7%9A%84%E8%AF%A0%E9%87%8A%E3%80%8B%E9%87%8C%E7%A8%8B)
 * [圣经的难题](http://31team.org/page/%E3%80%8A%E5%9C%A3%E7%BB%8F%E7%9A%84%E9%9A%BE%E9%A2%98%E3%80%8B%E9%87%8C%E7%A8%8B)
 
+### 圣经与文学
+* 意大利诗人但丁（Alghieri Dante, 1265 - 1321 AD）写了古典名著《神曲》（The Divine Comedy）
+* 莎士比亚（William Shakespeare, 1564 - 1616 AD）… 大约有八千个《圣经》的出处。
+* 英国诗人米尔顿（John Milton, 1608 - 1674 AD）。甘雅各和杰利纽康写道：“米尔顿是一个看不见的诗人，他把自己洒在从永恒到永恒的世界历史画布之上。他看到的是人从没有看到的事物，并且透过那内在的眼睛，他打开了许多人的眼睛。”[29] 他的名著《失乐园》和《复乐园》直接取材于《圣经》。“他被称为‘清教徒派’里的最高典范 -- 一个从《圣经》中发掘异象的人。”
+* 《天路历程》（The Pilgrim’s Progress）本仁约翰（John Bunyan, 1628 - 1688 AD）
+* 俄国文豪托尔斯泰（Leo Tolstoy, 1828 - 1910 AD）。“人生的意义乃在乎遵行那宇宙最高主宰的旨意。”“唯有这福音能够指示人生当走的道路，并使生命有了意义。”
+* 陀斯妥耶夫斯基（Fyodor Dostoevsky, 1821 - 1880 AD）
+
+### 圣经与日常生活
+* B.C. Before Christ. A.D. Anno Domini 主的年
+* 一周七日
+* good-bye. God be with you
+* holiday
+* crux, crucial, crucible
+* breakfast
+
+
 ## Reference
 ### Sir Francis Bacon 培根
 > “科学方法之父”培根说过,“有两本书作我们指导的指南针，以免我们误入歧途。第一本书是启示神旨意的《圣经》，第二本书则是展现神能力的自然界。”
