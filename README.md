@@ -1,6 +1,6 @@
 # Rejoice in God through our Lord Jesus Christ
 1. [12 Bible Verses](12BibleVerses.md)
-1. [12 Paradoxes](12Paradoxes.md)
+1. [12 Paradoxes](12paradoxes/README.md)
 1. [12 Books](12books/README.md)
 1. [Man of Faith](ManOfFaith.md)
 1. [Online resources](resources.md)
