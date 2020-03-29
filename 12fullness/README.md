@@ -1,6 +1,6 @@
-1. 慈爱和公义 Love & Righteous
+1. [慈爱和公义 Love & Righteous](love.md)
 1. 神的绝对主权和人的完全自由 The sovereignty of God, the free will of man
-1. 永恒与暂时 Eternal vs temporal
+1. [永恒与暂时 Eternal vs temporal](eternal.md)
 1. Oneness and diversity 合一与多样
 
 
@@ -13,4 +13,3 @@
 当我们越来越多地理解到，神在十字架上奇妙的作为，就能更多的理解历史上周围发生的事情。
 
 
-### 3. 永恒与暂时 Eternal vs temporal
