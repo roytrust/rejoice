@@ -5,7 +5,7 @@
 
 ## Reference
 ### Sir Francis Bacon
-> 
+> “科学方法之父”培根说过,“有两本书作我们指导的指南针，以免我们误入歧途。第一本书是启示神旨意的《圣经》，第二本书则是展现神能力的自然界。”
 > Sir Francis was a devout believer in the Bible. He wrote: “There are two books laid before us to study, to prevent our falling into error; first, the volume of the Scriptures, which reveal the will of God; then the volume of the Creatures, which express His power.”
 * https://creation.com/sir-francis-bacon
 * http://www.sirbacon.org/links/bible.html
