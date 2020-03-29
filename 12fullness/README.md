@@ -3,13 +3,7 @@
 1. [永恒与暂时 Eternal vs temporal](eternal.md)
 1. Oneness and diversity 合一与多样
 
-
-## Notes
-### 1. 慈爱和公义  
-神既是慈爱的，也是公义的。公义要求对罪恶实行无情的审判，罪的工价就是死。慈爱要求无条件的宽恕和救赎。在人的逻辑上，公义和慈爱无法协调，是反合的，相互矛盾的。这可能是难以理解的原因。理解这个问题，需要从主耶稣钉十字架这件事开始。 
- 
-十字架上，同时彰显了绝对的公义和完全的慈爱。绝对的公义，既是神的儿子替人赎罪，他也必须受死，是无情的。完全的慈爱，就是神在十字架上将自己的生命献上，救赎罪人，没有比这更大的爱了。公义和慈爱在十字架上完美的合一，只有神的大能和智慧才能做到。人类最丰富的想象力，甚至灵界的受造，都无法想到。我们能听到这么奇妙的构思，历史上无与伦比的成就，真是极大的福气。常常思想让人激动不已！
-
-当我们越来越多地理解到，神在十字架上奇妙的作为，就能更多的理解历史上周围发生的事情。
-
-
+深哉，　神丰富的智慧和知识！ 他的判断何其难测！ 他的踪迹何其难寻！  谁知道主的心？ 谁作过他的谋士呢？  谁是先给了他， 使他后来偿还呢？  因为万有都是本于他， 倚靠他，归于他。 愿荣耀归给他，直到永远。阿们！
+罗马书 11:33‭-‬36  
+Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways! "For who has known the mind of the Lord, or who has been his counselor?" "Or who has given a gift to him that he might be repaid?" For from him and through him and to him are all things. To him be glory forever. Amen.
+Romans 11:33‭-‬36  
