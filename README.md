@@ -2,7 +2,7 @@
 1. [12 Bible Verses](12BibleVerses.md)
 1. [12 Fullness](12fullness/README.md)
 1. [12 Books](12books/README.md)
-1. [The Fruits](fruits.md)
+1. [The Fruits of the Holy Spirit](fruits.md)
 1. [Man of Faith](ManOfFaith.md)
 1. [Online resources](resources.md)
 
