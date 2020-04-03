@@ -28,3 +28,8 @@ If we confess our sins, he is faithful and just to forgive us our sins and to cl
 
 凡劳苦担重担的人可以到我这里来，我就使你们得安息。 我心里柔和谦卑，你们当负我的轭，学我的样式；这样，你们心里就必得享安息。 因为我的轭是容易的，我的担子是轻省的。马太福音 11:28‭-‬30
 Come to me, all who labor and are heavy laden, and I will give you rest.  Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will find rest for your souls.  For my yoke is easy, and my burden is light. Matthew 11:28‭-‬30
+
+敬畏耶和华是智慧的开端； 认识至圣者便是聪明。箴言 9:10
+The fear of the Lord is the beginning of wisdom, and the knowledge of the Holy One is insight. Proverbs 9:10
+
+
