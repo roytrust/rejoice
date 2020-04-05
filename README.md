@@ -6,6 +6,7 @@
 1. [Man of Faith](ManOfFaith.md)
 1. [Online resources](resources.md)
 1. [Question & Answer](qa/README.md)
+1. [时机, 时候, 时刻, 时间](time.md)
 
 More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation. Romans 5:11
 不但如此，我们既借着我主耶稣基督得与　神和好，也就借着他以　神为乐。罗马书 5:11
