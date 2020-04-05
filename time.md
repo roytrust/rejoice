@@ -3,8 +3,30 @@
 * B.C. 586-587; 圣殿被巴比伦王所毁,圣经逐渐取代圣殿,成为中心.
 * 272-337; Constantine the Great
 * 325; the First Council of Nicaea, Nicene Creed.
+* 390; the Apostles' Creed
 * 1347-1351; black death peaking in Europe.
 * 1517.10; Luther published the 95 Theses.
+
+### Apostles' Creed
+I believe in God, the Father almighty,
+creator of heaven and earth.
+I believe in Jesus Christ, God's only Son, our Lord,
+who was conceived by the Holy Spirit,
+born of the Virgin Mary,
+suffered under Pontius Pilate,
+was crucified, died, and was buried;
+he descended to the dead.
+On the third day he rose again;
+he ascended into heaven,
+he is seated at the right hand of the Father,
+and he will come to judge the living and the dead.
+I believe in the Holy Spirit,
+the holy catholic Church,
+the communion of saints,
+the forgiveness of sins,
+the resurrection of the body,
+and the life everlasting. Amen.
+
 
 ### The Nicene Creed
 We believe in one God,
