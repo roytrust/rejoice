@@ -1,6 +1,6 @@
 # Rejoice in God through our Lord Jesus Christ
 1. [12 Bible Verses](12BibleVerses.md)
-1. [God's will](will.md)
+1. [God's will](will/README.md)
 1. [12 Fullness](12fullness/README.md)
 1. [12 Books](12books/README.md)
 1. [The Fruits of the Holy Spirit](fruits.md)
