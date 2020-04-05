@@ -2,8 +2,16 @@
 I delight to do your will, O my God; your law is within my heart." Psalms 40:8
 我的　神啊，我乐意照你的旨意行； 你的律法在我心里。诗篇 40:8
 
+所以基督到世上来的时候，就说： 　 神啊 ，祭物和礼物是你不愿意的； 你曾给我预备了身体。  燔祭和赎罪 祭 是你不喜欢的。  那时我说：　神啊，我来了， 为要照你的旨意行； 我的事在经卷上已经记载了。希伯来书 10:5‭-‬7
+Consequently, when Christ came into the world, he said, "Sacrifices and offerings you have not desired, but a body have you prepared for me; in burnt offerings and sin offerings you have taken no pleasure. Then I said, 'Behold, I have come to do your will, O God, as it is written of me in the scroll of the book.'" Hebrews 10:5‭-‬7
+
+
 凡遵行　神旨意的人就是我的弟兄姊妹和母亲了。马可福音 3:35
 For whoever does the will of God, he is my brother and sister and mother." Mark 3:35
+
+所以，弟兄们，我以　神的慈悲劝你们，将身体献上，当作活祭，是圣洁的，是　神所喜悦的；你们如此事奉乃是理所当然的。 不要效法这个世界，只要心意更新而变化，叫你们察验何为　神的善良、纯全、可喜悦的旨意。罗马书 12:1‭-‬2
+I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect.
+Romans 12:1‭-‬2
 
 
 ### [Gospel Mission](gospel.md)
