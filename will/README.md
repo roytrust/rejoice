@@ -1,7 +1,10 @@
 ## 神的旨意
 I delight to do your will, O my God; your law is within my heart." Psalms 40:8
-我的　神啊，我乐意照你的旨意行； 你的律法在我心里。
-诗篇 40:8
+我的　神啊，我乐意照你的旨意行； 你的律法在我心里。诗篇 40:8
+
+凡遵行　神旨意的人就是我的弟兄姊妹和母亲了。马可福音 3:35
+For whoever does the will of God, he is my brother and sister and mother." Mark 3:35
+
 
 ### [Gospel Mission](gospel.md)
 耶稣进前来，对他们说：「天上地下所有的权柄都赐给我了。 所以，你们要去，使万民作我的门徒，奉父、子、圣灵的名给他们施洗 。 凡我所吩咐你们的，都教训他们遵守，我就常与你们同在，直到世界的末了。」马太福音 28:18‭-‬20
