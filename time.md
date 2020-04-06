@@ -3,6 +3,7 @@
 * B.C. 586-587; 圣殿被巴比伦王所毁,圣经逐渐取代圣殿,成为中心.
 * 272-337; Constantine the Great
 * 325; the First Council of Nicaea, Nicene Creed.
+* 367-397; 新约正典确认
 * 390; the Apostles' Creed
 * 1347-1351; black death peaking in Europe.
 * 1517.10; Luther published the 95 Theses.
