@@ -14,3 +14,10 @@
 * Beyond the gates of splendor - documentary
 * Love Above All - music
 * End of the Spear
+
+### 戴德生 James hudson Taylor 1832-1905
+* http://www.wellsofgrace.com/resources/biography/taylor.htm
+* 戴德生认为最要紧的事，就是先在英国**操练信心**。即是借着祷告，求神感动人来帮助他。
+* 有一段日子，我是难受到极点，甚至想放弃一切。主日，我独自坐在手术室，开始默想**神的爱**。他完全征服了我，使我谦卑下来。他的爱融化了我冰冷的、僵硬的心灵。
+* 戴德生深信神在圣经里的应许：“你们需用的这一切东西，你们的天父是知道的。”
+* 戴德生听到神对他的呼声：“如果你愿意与我同工，我要借着你去完成在内地的事工。”
