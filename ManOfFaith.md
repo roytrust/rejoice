@@ -1,4 +1,6 @@
 1. He is no fool who gives what he cannot keep to gain that which he cannot lose. - Jim Elliot
+1. Not your perfection but your direction. - MacArthur
+
 
 ### John MacArthur
 * Satan/demons operate a kingdom of lies that dominates the world.
