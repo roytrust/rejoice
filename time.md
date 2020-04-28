@@ -6,7 +6,12 @@
 * 367-397; 新约正典确认
 * 390; the Apostles' Creed
 * 1347-1351; black death peaking in Europe.
+* 1382; John Wycliffe translating Bible into English
 * 1517.10; Luther published the 95 Theses.
+* 1534; William Tyndale translating Bible
+* 1537; 英国开放圣经
+* 1919; 中文和合本
+
 
 ### Apostles' Creed
 I believe in God, the Father almighty,
