@@ -4,7 +4,7 @@
 1. [12 Fullness](12fullness/README.md)
 1. [12 Books](12books/README.md)
 1. [The Fruits of the Holy Spirit](fruits.md)
-1. [Man of Faith](ManOfFaith.md)
+1. [Man of Faith](faith/README.md)
 1. [Online resources](resources.md)
 1. [Question & Answer](qa/README.md)
 1. [时机, 时候, 时刻, 时间](time.md)
