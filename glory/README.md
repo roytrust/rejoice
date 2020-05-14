@@ -13,7 +13,7 @@ When he had gone out, Jesus said, “Now is the Son of Man glorified, and God is
 * 透过十字架
 
 ### 圣经经文
-你们奉我的名无论求什么，我必成就，叫父因儿子得荣耀。 你们若奉我的名求什么，我必成就。」约翰福音 14:13‭-‬14  
+你们奉我的名无论求什么，我必成就，叫父因儿子得荣耀。 你们若奉我的名求什么，我必成就。」约翰福音 14:13‭-‬14 
 Whatever you ask in my name, this I will do, that the Father may be glorified in the Son.  If you ask me  anything in my name, I will do it. John 14:13‭-‬14
 
 
