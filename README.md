@@ -1,5 +1,6 @@
 # Rejoice in God through our Lord Jesus Christ
 1. [12 Bible Verses](12BibleVerses.md)
+1. [12 Blessings](12blessings.md)
 1. [The will of God](will/README.md)
 1. [Love of God 神的爱](love/README.md)
 1. [Glory of God 神的荣耀](glory/README.md)
