@@ -1,5 +1,6 @@
 1. He is no fool who gives what he cannot keep to gain that which he cannot lose. - Jim Elliot
 1. Not your perfection but your direction. - MacArthur
+1. Repent: sorry enough to stop.
 1. 愚顽的人用嘴说话，聪明的人用脑说话，智慧的人用心说话。- 成师母
 1. 人是受造、有限、玷污堕落的 - 唐崇荣
 1. 我们唯一的需要就是建立与主的关联，每个人与他有真实、活泼的沟通。如果我们能将此事牢记在心，则几乎所有的困难都能避免或减轻。
