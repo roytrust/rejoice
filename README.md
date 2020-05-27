@@ -33,3 +33,6 @@ These things I have spoken to you, that my joy may be in you, and that your joy 
 希伯来书 1:9 
 You have loved righteousness and hated wickedness; therefore God, your God, has anointed you with the oil of gladness beyond your companions.”
 
+我就走到　神的祭坛， 到我最喜乐的　神那里。 　神啊，我的　神， 我要弹琴称赞你！
+诗篇 43:4 Then I will go to the altar of God, to God my exceeding joy, and I will praise you with the lyre, O God, my God.
+
