@@ -28,3 +28,8 @@ Do not grieve, for the joy of the Lord is your strength.
 「这些事我已经对你们说了，是要叫我的喜乐存在你们心里，并叫你们的喜乐可以满足。约翰福音 15:11
 These things I have spoken to you, that my joy may be in you, and that your joy may be full.
  John 15:11
+
+你喜爱公义，恨恶罪恶； 所以　神，就是你的　神，用喜乐油膏你， 胜过膏你的同伴；
+希伯来书 1:9 
+You have loved righteousness and hated wickedness; therefore God, your God, has anointed you with the oil of gladness beyond your companions.”
+
