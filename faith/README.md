@@ -7,6 +7,7 @@
 1. 我们要的不是一个伟大的信心，而是一位伟大的神。-戴德生
 1. 不是努力去得着信心，或是祈求信心的增加，只须仰望信实的主就够了。完完全全地安息在爱我们的基督里面，时时刻刻地，永永远远地。-麦卡锡
 1. 企图从他那里乞讨丰富的恩典是错误的，我们是他的一部分。我们每个人都是了的肢体，就像枝子连接在葡萄树上。阿，真是不可思议，我们竟与复活的主合为一体。-麦卡锡
+1. The fig tree may not blossom, and the flocks may cease from the field, it matters not to the man who can sing, "My beloved is mine and I am His". C.H. Spurgeon
 
 
 ### 唐崇荣牧师
