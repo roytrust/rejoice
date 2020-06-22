@@ -1,4 +1,5 @@
 # Rejoice in God through our Lord Jesus Christ
+1. [The Word was God 道就是神](Word.md)
 1. [12 Bible Verses](12BibleVerses.md)
 1. [12 Blessings](12blessings.md)
 1. [The will of God](will/README.md)
