@@ -4,3 +4,5 @@
 It is the Spirit who gives life; the flesh is no help at all. The words that I have spoken to you are spirit and life. John 6:63
 叫人活着的乃是灵，肉体是无益的。我对你们所说的话就是灵，就是生命。
 
+Consider how I love your precepts!  Give me life according to your steadfast love.   The sum of your word is truth, and every one of your righteous rules endures forever.   Princes persecute me without cause, but my heart stands in awe of your words.  I rejoice at your word like one who finds great spoil. Psalm 119:159‭-‬162
+你看我怎样爱你的训词！ 耶和华啊，求你照你的慈爱将我救活！  你话的总纲是真实； 你一切公义的典章是永远长存。  首领无故地逼迫我， 但我的心畏惧你的言语。  我喜爱你的话， 好像人得了许多掳物。
