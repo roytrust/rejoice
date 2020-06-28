@@ -13,3 +13,5 @@ Isaiah 59:1‭-‬2 耶和华的膀臂并非缩短，不能拯救， 耳朵并�
 约翰一书 1:9 
 If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness.
 
+### 和别人比较
+
