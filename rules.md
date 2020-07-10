@@ -5,3 +5,8 @@ I am the vine; you are the branches. Whoever abides in me and I in him, he it is
 For where your treasure is, there will your heart be also.
 Luke 12:34
 因为，你们的财宝在哪里，你们的心也在那里。
+
+* 不要比较
+* 别把自己当回事儿
+* 苦难是正常，平安是恩典
+* 找到神提供的出路
