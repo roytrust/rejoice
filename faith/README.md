@@ -11,7 +11,8 @@
 
 
 ### [唐崇荣牧师](tang.md)
-* 
+* 圣灵最大的工作，是把道带到人间。Common groud.
+
 
 ### John MacArthur
 * Satan/demons operate a kingdom of lies that dominates the world.
