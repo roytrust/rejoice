@@ -14,7 +14,8 @@
 * 圣灵最大的工作，是把道带到人间。Common groud.
 * 旧约隐藏着新约，新约应验了旧约的应许。
 * 不可能、不信、有限的经验，限制和捆绑人，甚至试图捆绑神的道和真理。越多错误的经验，越多的捆绑。
-
+* 把人的有限，放到神的无限，丰盛就出来了。人越分越少，神越分越多。神给我们的恩赐，是否交给神，让神管理?
+* 主的工作，主给我们机会看他工作
 
 ### John MacArthur
 * Satan/demons operate a kingdom of lies that dominates the world.
