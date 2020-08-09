@@ -1,5 +1,8 @@
 
 ### History
+* B.C. 1300; Moses
+* B.C. 1000; King David
+* 
 * B.C. 586-587; 圣殿被巴比伦王所毁,圣经逐渐取代圣殿,成为中心.
 * 272-337; Constantine the Great
 * 325; the First Council of Nicaea, Nicene Creed.
