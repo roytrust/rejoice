@@ -17,6 +17,8 @@
 * 把人的有限，放到神的无限，丰盛就出来了。人越分越少，神越分越多。神给我们的恩赐，是否交给神，让神管理? 交在主手里。
 * 主的工作，主给我们机会看他工作
 * 基督作救主的资格: 神差的(神的权柄、原理、工作、记号、能力)，神的原理(超时间、超空间、全世审判官)
+* the future is now, here is there, once is forever.
+
 
 ### John MacArthur
 * Satan/demons operate a kingdom of lies that dominates the world.
