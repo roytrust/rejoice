@@ -26,7 +26,19 @@
 * Satan/demons operate a kingdom of lies that dominates the world.
 * spiritual war, battle for how people think, the mind. Not about chasing Satan away. The world is imprisoned in belief systems.
 
- 
+### St. Augustine
+* Thou hast made us for thyself, O Lord, and our heart is restless until it finds its rest in thee.
+* To fall in love with God is the greatest romance; to seek him the greatest adventure; to find him, the greatest human achievement.
+* There is no saint without a past, no sinner without a future.
+* Miracles are not contrary to nature but only contrary to what we know about nature.
+* The truth is like a lion; you don’t have to defend it. Let it loose; it will defend itself.
+* God is always trying to give good things to us, but our hands are too full to receive them.
+* How can the past and future be, when the past no longer is, and the future is not yet? As for the present, if it were always present and never moved on to become the past, it would not be time, but eternity.
+* Christ is not valued at all, unless he is valued above all.
+* There can only be two basic loves... the love of God unto the forgetfulness of self, or the love of self unto the forgetfulness and denial of God.
+* Oh, God, to know you is life. To serve You is freedom. To praise you is the soul's joy and delight. Guard me with the power of Your grace here and in all places. Now and at all times, forever. Amen.
+
+
 ### John Calvin
 * Institutes of the Christian Religion, https://www.ccel.org/ccel/calvin/institutes/
 * 基督教要义, http://31team.org/page/%E3%80%8A%E5%9F%BA%E7%9D%A3%E6%95%99%E8%A6%81%E4%B9%89%E3%80%8B%E5%8A%A0%E5%B0%94%E6%96%87
