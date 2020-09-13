@@ -1,3 +1,4 @@
+1. 神是绝对的本体, 永恒oneness
 1. [慈爱和公义 Love & Righteous](love.md)
 1. 神的绝对主权和人的完全自由 The sovereignty of God, the free will of man
 1. [永恒与暂时 Eternal & temporal](eternal.md)
