@@ -27,16 +27,21 @@
 * spiritual war, battle for how people think, the mind. Not about chasing Satan away. The world is imprisoned in belief systems.
 
 ### St. Augustine
-* Thou hast made us for thyself, O Lord, and our heart is restless until it finds its rest in thee.
-* To fall in love with God is the greatest romance; to seek him the greatest adventure; to find him, the greatest human achievement.
-* There is no saint without a past, no sinner without a future.
-* Miracles are not contrary to nature but only contrary to what we know about nature.
-* The truth is like a lion; you don’t have to defend it. Let it loose; it will defend itself.
-* God is always trying to give good things to us, but our hands are too full to receive them.
-* How can the past and future be, when the past no longer is, and the future is not yet? As for the present, if it were always present and never moved on to become the past, it would not be time, but eternity.
-* Christ is not valued at all, unless he is valued above all.
-* There can only be two basic loves... the love of God unto the forgetfulness of self, or the love of self unto the forgetfulness and denial of God.
-* Oh, God, to know you is life. To serve You is freedom. To praise you is the soul's joy and delight. Guard me with the power of Your grace here and in all places. Now and at all times, forever. Amen.
+1. Thou hast made us for thyself, O Lord, and our heart is restless until it finds its rest in thee.
+1. To fall in love with God is the greatest romance; to seek him the greatest adventure; to find him, the greatest human achievement.
+1. There is no saint without a past, no sinner without a future.
+1. Miracles are not contrary to nature but only contrary to what we know about nature.
+1. The truth is like a lion; you don’t have to defend it. Let it loose; it will defend itself.
+1. God is always trying to give good things to us, but our hands are too full to receive them.
+1. How can the past and future be, when the past no longer is, and the future is not yet? As for the present, if it were always present and never moved on to become the past, it would not be time, but eternity.
+1. Christ is not valued at all, unless he is valued above all.
+1. There can only be two basic loves... the love of God unto the forgetfulness of self, or the love of self unto the forgetfulness and denial of God.
+1. Oh, God, to know you is life. To serve You is freedom. To praise you is the soul's joy and delight. Guard me with the power of Your grace here and in all places. Now and at all times, forever. Amen.
+1. He who is filled with love is filled with God himself.
+1. To wisdom belongs the intellectual apprehension of things eternal; to knowledge, the rational apprehension of things temporal.
+1. He who sings prays twice.
+1. It was pride that changed angels into devils; it is humility that makes men as angels.
+1. As the soul is the life of the body, so God is the life of the soul. As therefore the body perishes when the soul leaves it, so the soul dies when God departs from it.
 
 
 ### John Calvin
