@@ -28,6 +28,7 @@
 
 ### St. Augustine
 1. Thou hast made us for thyself, O Lord, and our heart is restless until it finds its rest in thee.
+1. I believe so that I may understand. (understand to believe better)
 1. To fall in love with God is the greatest romance; to seek him the greatest adventure; to find him, the greatest human achievement.
 1. There is no saint without a past, no sinner without a future.
 1. Miracles are not contrary to nature but only contrary to what we know about nature.
