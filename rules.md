@@ -1,3 +1,9 @@
+1. Have not love, I am nothing.
+1. 道成肉身的精神，一起陪伴、认识神、成长.
+1. 生命出身. 「从肉身生的就是肉身；从灵生的就是灵。约3:6」
+1. 永恒的东西, 神一定会赐给我们，永不失落。凡经不起时间考验的，都没有价值。
+
+
 我是葡萄树，你们是枝子。常在我里面的，我也常在他里面，这人就多结果子；因为离了我，你们就不能做什么。
 约翰福音 15:5
 I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing.
