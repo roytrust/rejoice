@@ -1,3 +1,6 @@
+## Praise, hymns
+* God be with you till we meet again
+
 ## What steal our joy?
 ### Manage our mind
 * Travel to the past: bitterness, unforgiven
