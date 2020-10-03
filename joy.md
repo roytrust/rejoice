@@ -1,5 +1,11 @@
 ## Praise, hymns
-* God be with you till we meet again
+1. Precious Cross 寶貴十架
+1. 10,000 Reasons
+1. You Are My All in All
+1. 云上太阳The Sun Above the Clouds
+1. 恩典记号
+1. 我要向高山舉目 Lift My Eyes to the Hills
+1. 再相会 God be with you till we meet again
 
 ## What steal our joy?
 ### Manage our mind
