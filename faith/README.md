@@ -21,6 +21,7 @@
 * 基督作救主的资格: 神差的(神的权柄、原理、工作、记号、能力)，神的原理(超时间、超空间、全世审判官)
 * the future is now, here is there, once is forever.
 * 七种安息: 从罪恶的劳苦中释放出来，享受神救赎的平安。日子不是重要的，在日子中神要赐的福才是重点。
+* 圣灵的充满: 永远、丰盛、真理的灵。永远无穷的泉源、生命、丰盛的真理、恩典、恩赐、平安、喜乐、盼望、应许、荣光
 
 ### John MacArthur
 * Satan/demons operate a kingdom of lies that dominates the world.
