@@ -11,7 +11,6 @@
 1. [Glory of God 神的荣耀](glory/README.md)
 1. [12 Fullness](12fullness/README.md)
 1. [The Fruits of the Holy Spirit](fruits.md)
-1. [Online resources](resources.md)
 1. [Question & Answer](qa/README.md)
 1. [时机, 时候, 时刻, 时间](time.md)
 
