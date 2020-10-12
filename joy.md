@@ -24,3 +24,6 @@ If we confess our sins, he is faithful and just to forgive us our sins and to cl
 
 ### 和别人比较
 
+### Resources
+* [Apple picking](http://www.abbayederougemont.org/menu_verger.php)
+
