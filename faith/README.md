@@ -1,4 +1,5 @@
 1. He is no fool who gives what he cannot keep to gain that which he cannot lose. - Jim Elliot
+1. Mercy is is withholding deserve punishment; Grace is an act of giving undeserved favor.
 1. Not your perfection but your direction. - MacArthur
 1. Repent: sorry enough to stop.
 1. 愚顽的人用嘴说话，聪明的人用脑说话，智慧的人用心说话。- 成师母
