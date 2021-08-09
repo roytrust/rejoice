@@ -6,6 +6,8 @@
 * Let us give up our work, our thoughts, our plans, ourselves, our lives, our loved ones, our influence, our all, right into His hand, and then, when we have given all over to Him, there will be nothing left for us to be troubled about, or to make trouble about.
 * The real secret of an unsatisfied life lies too often in an unsurrendered will.
 * true love cannot be stationary; it must either decline or grow. Despite
+* Christ is either Lord of all, or He is not Lord at all.
+* I never made a sacrifice.
 * 依靠主，只要你信赖他，他必眷顾、带领你的此生和永生之事。不信的人只看到难处，但我们的信心却教我们向主仰望。
 * 戴德生认为最要紧的事，就是先在英国**操练信心**。即是借着祷告，求神感动人来帮助他。
 * 有一段日子，我是难受到极点，甚至想放弃一切。主日，我独自坐在手术室，开始默想**神的爱**。他完全征服了我，使我谦卑下来。他的爱融化了我冰冷的、僵硬的心灵。
