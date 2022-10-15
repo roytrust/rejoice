@@ -19,6 +19,7 @@
 * 隐藏自己是传道人最重要的事，传报信息的人应该隐藏在他的信息後面。
 * 追求服事的能力还是其次，追求圣洁的能力才是最重要的
 * [MacLaren's Expositions](https://www.studylight.org/commentaries/eng/mac.html)
+* To efface oneself is one of a preacher's first duties
 
 ### [唐崇荣牧师](tang.md)
 * 圣灵最大的工作，是把道带到人间。Common groud.
