@@ -7,4 +7,5 @@
 1. [圣经的权威](AuthorityBible.md) - 里程
 1. [进化、退化、神化](http://cclw.net/gospel/explore/Creation%20Vs%20Evolution/index.html) -
   何仲柯
+1. [Revelations of Divine Lovr](https://www.gutenberg.org/files/52958/52958-h/52958-h.htm)
 
