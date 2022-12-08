@@ -9,11 +9,14 @@
 1. 我们要的不是一个伟大的信心，而是一位伟大的神。-戴德生
 1. 不是努力去得着信心，或是祈求信心的增加，只须仰望信实的主就够了。完完全全地安息在爱我们的基督里面，时时刻刻地，永永远远地。-麦卡锡
 1. 企图从他那里乞讨丰富的恩典是错误的，我们是他的一部分。我们每个人都是了的肢体，就像枝子连接在葡萄树上。阿，真是不可思议，我们竟与复活的主合为一体。-麦卡锡
-1. The fig tree may not blossom, and the flocks may cease from the field, it matters not to the man who can sing, "My beloved is mine and I am His". C.H. Spurgeon
 1. No pit is so deep that God is not deeper still. Corrie Ten Boom
 1. Memories are the key not to the past, but to the future. Corrie Ten Boom
 1. When I try, I fail. When I trust, He succeeds.
 1. Perhaps only when human effort had done it's best and failed, would God's power alone be free to work.
+
+### [C.H. Spurgeon](spurgeon.md)
+1. The fig tree may not blossom, and the flocks may cease from the field, it matters not to the man who can sing, "My beloved is mine and I am His". C.H. Spurgeon
+1. Preach Jesus Christ and him crucified, let the lion out. Exposition and spreading of the Bible, only let the lion loose and it will defend itself.
 
 ### [MacLaren 马卡仁](maclaren.md)
 * 隐藏自己是传道人最重要的事，传报信息的人应该隐藏在他的信息後面。
